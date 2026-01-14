@@ -1,4 +1,4 @@
 ## Hi! 👋
 
 
-🌱 I’m currently learning **Data Science**
+✨ I’m a Graphic Designer and Data Scientist ✨ 
