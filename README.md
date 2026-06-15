@@ -1,4 +1,4 @@
 ## Hi! 👋
 
 
-✨ I’m a Graphic Designer and Data Scientist ✨ 
+✨ I’m a Web Developer and Data Scientist ✨ 
